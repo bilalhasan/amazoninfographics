@@ -1,4 +1,4 @@
-# amazoninfographics
+# Amazon product infographic images
 Amazon infographic images, amazon product infographic images, amazon image listing service
 I will design amazon product infographic or amazon product listing images
 
